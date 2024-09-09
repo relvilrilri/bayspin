@@ -40,7 +40,7 @@ Bayspin, kullanıcılarına en iyi deneyimi sunmak için sorumlu bahis ilkesine 
 
 Bayspin, sorumlu oyun çerçevesinde belirli limitlerin uygulanmasına olanak tanır. Kullanıcılar, kendilerine uygun bahis limitlerini belirleyebilir ve kontrol altında tutabilirler. Bu özellik, bahis alışkanlıklarının yönetilmesine büyük katkıda bulunur.
 
-## Baywin'in Avantajları
+## Bayspin'in Avantajları
 
 1. **Güvenlik**
 
@@ -54,13 +54,13 @@ Bayspin, sorumlu oyun çerçevesinde belirli limitlerin uygulanmasına olanak ta
 
    Karmaşık olan her şey göz korkutucu olabilir. Baywin, kullanıcı dostu bir arayüz ile herkesin kolayca kullanabileceği bir platform sunar. Anlaşılır menü yapısı ve basit işlem adımları ile teknolojiye aşina olmayan kişiler dahi rahatlıkla Baywin'i kullanabilir.
 
-## Baywin Nasıl Kullanılır?
+## Bayspin Nasıl Kullanılır?
 
 Baywin kullanmaya başlamak son derece basit ve hızlı bir süreçtir. Aşağıda adım adım nasıl kayıt olabileceğinizi ve kullanmaya başlayabileceğinizi açıkladık:
 
 1. **Hesap Oluşturma**
 
-   İlk adım Baywin web sitesine giderek bir hesap oluşturmaktır. Geri kalan süreç ise oldukça sezgisel olup, hızlı bir e-posta doğrulaması ile tamamlanır.
+   İlk adım Bayspin web sitesine giderek bir hesap oluşturmaktır. Geri kalan süreç ise oldukça sezgisel olup, hızlı bir e-posta doğrulaması ile tamamlanır.
 
 2. **Profil Ayarları**
 
